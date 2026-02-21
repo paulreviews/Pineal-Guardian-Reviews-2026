@@ -33,7 +33,7 @@ When your mind relaxes and your sleep improves, your brain gets time to reset. W
 
 Many [Pineal Guardian reviews](https://sites.google.com/view/pineal-guardian-x-review-guide/home) mention better sleep within the first few weeks. Some users say their thoughts feel less scattered. Others notice fewer night awakenings.
 
-<a href="https://thepineulguardian.com/recommends/products/" target="_blank"> <img src="https://thepineulguardian.com/wp-content/uploads/2026/01/order-now.jpg"> </a>
+<a href="https://sites.google.com/view/pineal-guardian-x-review-guide/home" target="_blank"> <img src="https://thepineulguardian.com/wp-content/uploads/2026/01/order-now.jpg"> </a>
 
 ## Pineal Guardian ingredients and what each one does
 
@@ -67,7 +67,7 @@ Magnesium supports nerve function and muscle relaxation. According to data from 
 
 These ingredients work together. One supports calm. Another supports sleep depth. Another supports brain balance. That blend is what makes Pineal Guardian different from basic sleep pills.
 
-<a href="https://thepineulguardian.com/recommends/products/" target="_blank"> <img src="https://thepineulguardian.com/wp-content/uploads/2026/01/order-now.jpg"> </a>
+<a href="https://sites.google.com/view/pineal-guardian-x-review-guide/home" target="_blank"> <img src="https://thepineulguardian.com/wp-content/uploads/2026/01/order-now.jpg"> </a>
 
 ## Pineal Guardian benefits according to real user patterns
 
@@ -143,7 +143,7 @@ This makes Pineal Guardian suitable for daily use for many adults. Still, it is 
 
 [**Pineal Guardian Official Website**](https://sites.google.com/view/pineal-guardian-x-review-guide/home)
 
-<a href="https://thepineulguardian.com/recommends/products/" target="_blank">
+<a href="https://sites.google.com/view/pineal-guardian-x-review-guide/home" target="_blank">
 
 <img src="https://thepineulguardian.com/wp-content/uploads/2026/01/order-now.jpg">
 
@@ -170,7 +170,7 @@ Based on available details and user patterns, Pineal Guardian appears to be a re
 
 Many Pineal Guardian reviews suggest the multi-bottle packs give better value when you look at [**Pineal Guardian pricing**.](https://sites.google.com/view/pineal-guardian-x-review-guide/home) The reason is simple. Natural supplements take time to show full results. A longer supply supports steady use and also lowers the cost per bottle, which makes Pineal Guardian pricing more affordable in the long run.
 
-<a href="https://thepineulguardian.com/recommends/products/" target="_blank"> <img src="https://thepineulguardian.com/wp-content/uploads/2026/01/order-now.jpg"> </a>
+<a href="https://sites.google.com/view/pineal-guardian-x-review-guide/home" target="_blank"> <img src="https://thepineulguardian.com/wp-content/uploads/2026/01/order-now.jpg"> </a>
 
 ## Where to buy Pineal Guardian safely
 
@@ -202,7 +202,7 @@ Some users take it 30 minutes before bed. Others take it earlier in the evening.
 
 Consistency matters. Skipping days can slow progress. The body responds best to steady support.
 
-**<a href="https://thepineulguardian.com/recommends/products/" target="_blank"> <img src="https://thepineulguardian.com/wp-content/uploads/2026/01/order-now.jpg"> </a>**
+**<a href="https://sites.google.com/view/pineal-guardian-x-review-guide/home" target="_blank"> <img src="https://thepineulguardian.com/wp-content/uploads/2026/01/order-now.jpg"> </a>**
 
 ## Who should use Pineal Guardian
 
@@ -262,7 +262,7 @@ Many brain supplements use caffeine or stimulants. Those can raise anxiety. Pine
 
 This blend makes it useful for people who want calm nights and clear days.
 
-<a href="https://thepineulguardian.com/recommends/products/" target="_blank"> <img src="https://thepineulguardian.com/wp-content/uploads/2026/01/order-now.jpg"> </a>
+<a href="https://sites.google.com/view/pineal-guardian-x-review-guide/home" target="_blank"> <img src="https://thepineulguardian.com/wp-content/uploads/2026/01/order-now.jpg"> </a>
 
 ## Frequently asked questions about Pineal Guardian
 

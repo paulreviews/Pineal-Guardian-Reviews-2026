@@ -95,7 +95,7 @@ This does not feel like caffeine energy. It feels steady and clean.
 
 When sleep improves, mood often follows. Several Pineal Guardian reviews mention feeling less irritable and more balanced.
 
-<a href="https://thepineulguardian.com/recommends/products/" target="_blank"> <img src="https://thepineulguardian.com/wp-content/uploads/2026/01/order-now.jpg"> </a>
+<a href="https://sites.google.com/view/pineal-guardian-x-review-guide/home" target="_blank"> <img src="https://thepineulguardian.com/wp-content/uploads/2026/01/order-now.jpg"> </a>
 
 ## Is Pineal Guardian backed by science or just claims?
 
